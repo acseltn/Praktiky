@@ -1,2 +1,2 @@
-# Praktika_1
+# Praktiky
 
